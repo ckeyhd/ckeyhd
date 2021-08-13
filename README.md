@@ -6,6 +6,8 @@
 
 Anyway, this is continuous growth 📈 and **may God help us** in the process...
 
+Ha, ha, ha... Do not worry! 😅 Many of my repositories are private.
+
 <!--
 - 📫 How to reach me: ckey08@gmail.com
 -->
